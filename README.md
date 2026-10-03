@@ -1,0 +1,1 @@
+# Namibian-school-connectivity-monitor.
